@@ -2,7 +2,6 @@
 Joseph Alexopoulos
 
 
-
 ![image](https://user-images.githubusercontent.com/122423963/212249868-31b7209c-4b88-470f-8246-68e2426333ae.png)
 
 ![image](https://user-images.githubusercontent.com/122423963/212255238-a4a92bbb-8fa6-4911-9fa9-4b90130c95df.png)
